@@ -1,3 +1,4 @@
+![Screenshot_٢٠٢٢٠٩٠٥-٠٠٥٨٥١](https://user-images.githubusercontent.com/112836442/188349172-62d52a71-30cb-4ef8-abba-b335e03b54f1.png)
 ![IMG_٢٠٢٢٠٩٠٥_٠١٠٣١٦](https://user-images.githubusercontent.com/112836442/188349098-b74125d3-ff6b-42df-9b9a-39c579c92c33.jpg)
 - 👋 Hi, I’m @farid12151999
 - 👀 I’m interested in ...
